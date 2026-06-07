@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-EOVB940810MMCSRT01
+EOVB940810MMCSRT01
